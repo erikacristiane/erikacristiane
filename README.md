@@ -1,4 +1,4 @@
-### Oii! Eu sou a Érika Cristiane 👋
+### Oii! Eu sou a Érika Cristiane 💗
 
 <div>
   <a href="https://github.com/erikacristiane">
